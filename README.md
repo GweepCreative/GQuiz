@@ -1,0 +1,1 @@
+https://www.figma.com/file/y76yyh2eNBnVuLHOAP7ZkZ/GQuiz?type=design&node-id=0%3A1&mode=design&t=mVuoP8aL54Ypyf8I-1
